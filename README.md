@@ -273,4 +273,4 @@ Entrevista com garotas que se intitulam "Rolezeiras" no Parque do Ibirapuera.
 
 Quando você é uma Lady rockeira, mas canta só evidências no karaokê!
 
-[![MemeLadies](https://ibb.co/dmiGd6)
+![MemeLadies](https://image.ibb.co/iQEdrR/MEME_TECH_LADIES.jpg)
